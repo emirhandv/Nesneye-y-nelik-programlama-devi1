@@ -1,0 +1,1 @@
+# Nesneye-y-nelik-programlama-devi1
